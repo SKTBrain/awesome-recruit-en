@@ -24,4 +24,4 @@
 
 &nbsp;&nbsp;Some people might ask, “is it even possible to gather people that satisfy these conditions?”. The truth is, there are many of them here with us already! If you do not belong to the categories we’ve listed but are confident you are highly capable of AI research and development, we strongly encourage you to apply! We are ready to welcome everyone who is prepared to lead the future of AI!
 
-&nbsp;&nbsp;We are awaiting for you to join us. If you are an AI rock star or you want to become the next one, please send your curriculum vitae (resume) to ts.kim@sk.com . We look forward to meeting you!
+&nbsp;&nbsp;We are awaiting for you to join us. If you are an AI rock star or you want to become the next one, please send your curriculum vitae (resume) to jobs@sktbrain.com . We look forward to meeting you!
